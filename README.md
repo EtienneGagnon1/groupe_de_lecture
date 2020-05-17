@@ -2,7 +2,7 @@
 
 ## Horaire
 
-- 16 Mai: Ayer LANGUAGE, TRUTH AND LOGIC
+- 16 Mai: Ayer LANGUAGE, TRUTH AND LOGIC Chapitre 1 
 - 23 Mai: TBD
 
 
